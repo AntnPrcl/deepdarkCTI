@@ -8,7 +8,7 @@
 |https://t.me/base_brutesu| Combo List
 |https://t.me/baseleak| Data Leaks
 |https://t.me/blackshadowsleaks3 (DELETED)| Black Shadow Iran based hacking group
-|https://t.me/Blank_Link|
+|https://t.me/Blank_Link (DELETED)| 
 |https://t.me/blueteamzone|
 |https://t.me/boosty66brvte| Data Leaks |
 |https://t.me/breachdetector|
